@@ -46,7 +46,7 @@
 ## Output:
 ![image](https://github.com/user-attachments/assets/157f234a-5268-4e75-bfd4-9bba44d98113)
 
-### Name: Harsshitha ROSHINI S
+### Name:ROSHINI S
 ### Register Number: 212223240142
 
 ## Result: 
